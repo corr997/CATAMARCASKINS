@@ -1,4 +1,4 @@
 # SKINS DE CATAMARCA!!
 
 # [IStringer](https://www.mediafire.com/file/f9p8b84mvbuis7s/IStringer.osk/file)
-![](https://osu.ppy.sh/ss/18651188/9919)
+![](https://cdn.discordapp.com/attachments/1118733958587367516/1118733973267427328/9919.png)
